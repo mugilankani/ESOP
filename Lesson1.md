@@ -1,5 +1,3 @@
-I'll create comprehensive, easy-to-understand lessons about ESOP management, starting with Lesson 1, using humor and simple explanations rather than dry textbook content.
-
 # Lesson 1: Fundamentals of Equity - The Ownership Pizza Party
 
 ## What is Equity? 🍕
